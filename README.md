@@ -5,9 +5,9 @@
 
 ### What I'm studying 💻
 
-🎓 I'm currently in the last year of my bachelor in Computer Science.
+🎓 I'm currently in the first year of my Master's Degree in Software Engineering @ University of Lisbon
 
 ### Find me elsewhere 🌎
 
 📸 [Instagram](https://www.instagram.com/_caiodinizz) <br>
-💼 [LinkedIn](https://www.linkedin.com/in/caiomartins1/) <br>
+💼 [LinkedIn](https://www.linkedin.com/in/caiocdmartins/) <br>
