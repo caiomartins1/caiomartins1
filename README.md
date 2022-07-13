@@ -11,3 +11,10 @@
 
 📸 [Instagram](https://www.instagram.com/_caiodinizz) <br>
 💼 [LinkedIn](https://www.linkedin.com/in/caiocdmartins/) <br>
+
+
+### What I'm currently listenning to
+
+Leaving - ILLENIUM 
+
+01:06 ━━━━⬤─────── 04:05
