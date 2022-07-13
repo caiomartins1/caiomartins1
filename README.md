@@ -13,7 +13,7 @@
 💼 [LinkedIn](https://www.linkedin.com/in/caiocdmartins/) <br>
 
 
-### What I'm currently listenning to
+### What I'm currently listenning to ▶️
 
 Leaving - ILLENIUM 
 
