@@ -15,6 +15,6 @@
 
 ### What I'm currently listenning to ▶️
 
-Leaving - ILLENIUM 
+{{ Leaving - ILLENIUM }}
 
 01:06 ━━━━⬤─────── 04:05
