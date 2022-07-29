@@ -14,6 +14,6 @@ Find me elsewhere 🌎
 
 What I'm currently listenning to ▶️
 
-{{ Leaving - ILLENIUM }}
+{{ Mc Th - Deixa }}
 
 01:06 ━━━━⬤─────── 04:05
