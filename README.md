@@ -15,6 +15,6 @@
 
 ### What I'm currently listening to ▶️
 
-{{ MC Tairon - Se a Saudade Bater }}
+{{ MD Chefe - King Size Interlúdio }}
 
 01:06 ━━━━⬤─────── 04:05
