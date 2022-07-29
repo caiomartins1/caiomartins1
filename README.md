@@ -1,20 +1,12 @@
-### Hey, I'm Caio Martins! 👋
-
-🇧🇷 Born in Recife, Brazil <br>
-🇵🇹 Living in Lisbon, Portugal
-
-### What I'm studying 💻
-
-🎓 I'm currently in the first year of my Master's Degree in Software Engineering @ University of Lisbon
-
-### Find me elsewhere 🌎
-
-📸 [Instagram](https://www.instagram.com/_caiodinizz) <br>
-💼 [LinkedIn](https://www.linkedin.com/in/caiocdmartins/) <br>
-
-
-### What I'm currently listenning to ▶️
-
-{{ Leaving - ILLENIUM }}
-
-01:06 ━━━━⬤─────── 04:05
+IyMjIEhleSwgSSdtIENhaW8gTWFydGlucyEg8J+RiwoK8J+Hp/Cfh7cgQm9y
+biBpbiBSZWNpZmUsIEJyYXppbCA8YnI+CvCfh7Xwn4e5IExpdmluZyBpbiBM
+aXNib24sIFBvcnR1Z2FsCgojIyMgV2hhdCBJJ20gc3R1ZHlpbmcg8J+SuwoK
+8J+OkyBJJ20gY3VycmVudGx5IGluIHRoZSBmaXJzdCB5ZWFyIG9mIG15IE1h
+c3RlcidzIERlZ3JlZSBpbiBTb2Z0d2FyZSBFbmdpbmVlcmluZyBAIFVuaXZl
+cnNpdHkgb2YgTGlzYm9uCgojIyMgRmluZCBtZSBlbHNld2hlcmUg8J+MjgoK
+8J+TuCBbSW5zdGFncmFtXShodHRwczovL3d3dy5pbnN0YWdyYW0uY29tL19j
+YWlvZGluaXp6KSA8YnI+CvCfkrwgW0xpbmtlZEluXShodHRwczovL3d3dy5s
+aW5rZWRpbi5jb20vaW4vY2Fpb2NkbWFydGlucy8pIDxicj4KCgojIyMgV2hh
+dCBJJ20gY3VycmVudGx5IGxpc3Rlbm5pbmcgdG8g4pa277iPCgp7eyBMZWF2
+aW5nIC0gSUxMRU5JVU0gfX0KCjAxOjA2IOKUgeKUgeKUgeKUgeKspOKUgOKU
+gOKUgOKUgOKUgOKUgOKUgCAwNDowNQo=
