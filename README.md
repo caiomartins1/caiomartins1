@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ - }}
+{{ MD Chefe - Fragrância }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
