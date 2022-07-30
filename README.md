@@ -15,6 +15,6 @@
 
 ### What I'm currently listening to ▶️
 
-{{  -  }}
+{{ MD Chefe - Tendência }}
 
 01:06 ━━━━⬤─────── 04:05
