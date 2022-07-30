@@ -18,3 +18,4 @@
 {{ MD Chefe - HB20 2 (LQ) - Bonus Track (feat. Flacko & C'97) }}
 
 01:06 ━━━━⬤─────── 04:05
+   ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
