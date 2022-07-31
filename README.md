@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ L7NNON - HERMÈS }}
+{{ MD Chefe - 22K }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
