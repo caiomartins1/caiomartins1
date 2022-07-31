@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ MD Chefe - Fragrância }}
+{{ L7NNON - HERMÈS }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
