@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ MC Maneirinho - Debochando da Mídia }}
+{{ H.E.R. - Slide (Remix) (feat. Pop Smoke, A Boogie Wit da Hoodie & Chris Brown) (feat. Pop Smoke) }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
