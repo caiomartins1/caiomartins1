@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ MD Chefe - 22K }}
+{{ MC Maneirinho - Debochando da Mídia }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
