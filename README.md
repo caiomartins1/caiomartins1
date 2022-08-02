@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ H.E.R. - Slide (Remix) (feat. Pop Smoke, A Boogie Wit da Hoodie & Chris Brown) (feat. Pop Smoke) }}
+{{ Guzz Oliveira - FENDER }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
