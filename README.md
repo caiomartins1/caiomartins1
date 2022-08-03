@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Guzz Oliveira - FENDER }}
+{{ Post Malone - Cooped Up (with Roddy Ricch) }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
