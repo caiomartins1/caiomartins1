@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Post Malone - I Like You (A Happier Song) (with Doja Cat) }}
+{{ Crooked Royals - Glass Hands }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
