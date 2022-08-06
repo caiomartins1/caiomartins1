@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Ghost - Ritual }}
+{{ Our Last Night - Dark Storms }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
