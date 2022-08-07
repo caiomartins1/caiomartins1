@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Filipe Ret - F* F* M* }}
+{{ Red Hot Chili Peppers - The Righteous & the Wicked }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
