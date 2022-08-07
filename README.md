@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Teto - Fim de Semana no Rio }}
+{{ Filipe Ret - F* F* M* }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
