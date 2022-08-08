@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Red Hot Chili Peppers - The Righteous & the Wicked }}
+{{ Post Malone - Circles }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
