@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Trivium - Until the World Goes Cold }}
+{{ Motionless In White - Voices }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
