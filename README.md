@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Post Malone - Circles }}
+{{ Trivium - Until the World Goes Cold }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
