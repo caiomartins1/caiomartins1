@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Motionless In White - Voices }}
+{{ Volbeat - Black Rose }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
