@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Guns N' Roses - This I Love }}
+{{ Chris Turner - Drippy - Interlude }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
