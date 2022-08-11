@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Volbeat - Black Rose }}
+{{ Guns N' Roses - This I Love }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
