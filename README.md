@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Travis Scott - BUTTERFLY EFFECT }}
+{{ Travis Scott - CAN'T SAY }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
