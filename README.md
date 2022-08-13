@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Internet Money - Lemonade (Feat. Roddy Ricch & Don Toliver) [Remix] }}
+{{ Travis Scott - BUTTERFLY EFFECT }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
