@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Travis Scott - CAN'T SAY }}
+{{ Slipknot - Dead Memories }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
