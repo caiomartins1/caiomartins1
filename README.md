@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Desiigner - Outlet }}
+{{ EDEN - Sci-Fi }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
