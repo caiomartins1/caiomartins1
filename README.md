@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ EDEN - Sci-Fi }}
+{{ Phinehas - The Fire Itself }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
