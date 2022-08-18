@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Phinehas - The Fire Itself }}
+{{ Phinehas - Thorns }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
