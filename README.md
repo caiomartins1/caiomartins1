@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Phinehas - Thorns }}
+{{ Pop Smoke - Element }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
