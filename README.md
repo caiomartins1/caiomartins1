@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Matuê - Máquina do Tempo }}
+{{ 6LACK - Free }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
