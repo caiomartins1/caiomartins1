@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Metro Boomin - Overdue (with Travis Scott) }}
+{{ Phinehas - Eternally Apart }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
