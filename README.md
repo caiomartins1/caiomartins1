@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ 6LACK - Free }}
+{{ Metro Boomin - Overdue (with Travis Scott) }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
