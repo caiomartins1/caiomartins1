@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Phinehas - Eternally Apart }}
+{{ Cigarettes After Sex - Apocalypse }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
