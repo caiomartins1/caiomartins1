@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Cigarettes After Sex - Apocalypse }}
+{{ Kraak & Smaak - Squeeze Me }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
