@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Kraak & Smaak - Squeeze Me }}
+{{ Run–D.M.C. - Mary, Mary }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
