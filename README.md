@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Run–D.M.C. - Mary, Mary }}
+{{ Scorey - No Names }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
