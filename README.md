@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Scorey - No Names }}
+{{ Post Malone - Enemies (feat. DaBaby) }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
