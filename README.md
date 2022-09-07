@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Drake - Fair Trade (with Travis Scott) }}
+{{ Oceans Ate Alaska - Disparity - Interlude }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
