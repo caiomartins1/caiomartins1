@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Post Malone - Enemies (feat. DaBaby) }}
+{{ Drake - Fair Trade (with Travis Scott) }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
