@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Post Malone - Sunflower - Spider-Man: Into the Spider-Verse }}
+{{ Phinehas - Thorns }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
