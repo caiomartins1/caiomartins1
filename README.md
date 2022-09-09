@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Phinehas - Thorns }}
+{{ EDEN - Sci-Fi }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
