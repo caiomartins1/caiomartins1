@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ EDEN - Sci-Fi }}
+{{ Thomas Bergersen - Protectors of the Earth }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
