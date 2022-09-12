@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Silva Mc - O Mundão Girou: Nossa Silva Tu Mudou }}
+{{ Billie Eilish - Happier Than Ever }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
