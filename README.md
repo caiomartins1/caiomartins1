@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ DomLaike - Posturadão }}
+{{ Aka Rasta - Fases }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
