@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Currents - The Death We Seek }}
+{{ Internet Money - Lemonade (Feat. Roddy Ricch & Don Toliver) [Remix] }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
