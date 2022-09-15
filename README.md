@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Aka Rasta - Fases }}
+{{ Currents - The Death We Seek }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
