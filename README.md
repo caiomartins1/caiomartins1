@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Internet Money - Lemonade (Feat. Roddy Ricch & Don Toliver) [Remix] }}
+{{ MASN - Sitting In Fire }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
