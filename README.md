@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ MASN - Sitting In Fire }}
+{{ Delacruz - Poesia Acústica #2: Sobre Nós }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
