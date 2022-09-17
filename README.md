@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ XXXTENTACION - Look At Me! }}
+{{ Witt Lowry - Ghost }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
