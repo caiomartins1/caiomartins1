@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Delacruz - Poesia Acústica #2: Sobre Nós }}
+{{ XXXTENTACION - Look At Me! }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
