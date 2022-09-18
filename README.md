@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Witt Lowry - Ghost }}
+{{ In Flames - Drenched in Fear }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
