@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Sum 41 - In Too Deep }}
+{{ Pineapple StormTv - Poesia Acústica 13 }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
