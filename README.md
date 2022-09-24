@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Pineapple StormTv - Poesia Acústica #3: Capricorniana }}
+{{ Imagine Dragons - Natural }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
