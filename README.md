@@ -15,7 +15,7 @@
 
 ### What I'm currently listening to ▶️
 
-{{ Linkin Park - One Step Closer }}
+{{ Pineapple StormTv - Poesia Acústica #3: Capricorniana }}
 
 01:06 ━━━━⬤─────── 04:05
    ┊ ⇄ ◁◁ II ▷▷ ↻ ┊
